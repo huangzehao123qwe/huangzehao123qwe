@@ -1,0 +1,3 @@
+- 👋 Hi, It's Eric here
+- 👀 I’m interested in learning about different problems and addressing them thru design thinking and collaboration
+- 🏔 Living happily in Vancouver BC with my partner and Tutu (my corgi)
